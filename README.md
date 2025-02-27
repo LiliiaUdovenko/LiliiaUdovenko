@@ -33,7 +33,7 @@ My direct duties involved working hand-in-hand with the Marketing and Sales Depa
 - **2020:** Agile Project Management Methodologies, Business School || Essentials of Project Management ANSI PMI® PMBOK, Business School
 
 
-- **🐝 My personality:** One of my strongest points is asking questions, which I enjoy. I also always take a creative approach to any task.
+- **🐝 My personality:** One of my strongest points is asking questions, which I enjoy. I always take a creative approach to any task and think outside the box.
 
 
 🔗 I'm looking forward to having a productive collaboration with you!
