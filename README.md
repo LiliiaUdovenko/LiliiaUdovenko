@@ -3,8 +3,8 @@
 ### 🎯 I'm looking for a full-time job as a Junior Data Analyst in Lithuania (Kaunas or Vilnius)
 
 🌐 **Lithuania**  
-📧 **Email:** [email](mailto:li.udovenko@gmail.com)  
-🔗 **LinkedIn:** https://www.linkedin.com/in/liliiaudovenko
+📧 **Email:** [mail me](mailto:li.udovenko@gmail.com)  
+🔗 **LinkedIn:** [find me](https://www.linkedin.com/in/liliiaudovenko)
 
 
 ### 💡 About Me 
