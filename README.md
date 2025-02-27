@@ -1,6 +1,6 @@
-# 👋 Hello, Sveiki, Привіт! I'm Liliia, and I'm glad to see you here!
+## 👋 Hello, Sveiki, Привіт! I'm Liliia, and I'm glad to see you here!
 
-## 🎯 I'm looking for a full-time job as a Junior Data Analyst in Lithuania (Kaunas or Vilnius)
+### 🎯 I'm looking for a full-time job as a Junior Data Analyst in Lithuania (Kaunas or Vilnius)
 
 🌐 **Lithuania**  
 📧 **Email:** [email](mailto:li.udovenko@gmail.com)  
